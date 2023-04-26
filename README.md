@@ -26,7 +26,7 @@
     </p>
     <h3>Ele não sabia focar em si:</h3>
     <p>Em meados de março de 2022, nosso companheiro Pupu estava fazendo academia <br>
-    com seus amigos, mas parou de ir, oq é até normal e não tem problemas, <br>exceto quando a motivação para isso é mulher. nosso companheiro Pupu parou de ir <br>para à academia após começar a se envolver afetivamente com sua ex parceira: Selena. <br>
+    com seus amigos, mas parou de ir, oq é até normal e não tem problemas, <br>exceto quando a motivação para isso é mulher. nosso companheiro Pupu parou de ir <br>para à academia após começar a se envolver afetivamente com sua ex parceira. <br>
     esse fato foi confimado por ele posteriormente em um diálogo com seu amigo Eduardo, <br>onde o mesmo disse que não precisava ir pra academia porque sua parceira já aceitava <br>seu corpo, então não via necessidade de continuar indo. Outra coisa que ele parou de <br>fazer após começar a namorar foi de estidar para o Exame Nacional do Ensino Médio (ENEM) <br> e de sair com seus amigos. </p>
     <h2>Lista que Talison fez:</h2>
     <p>1- Aceitava todos os tipos de maus-tratos das suas ex-namoradas (macho não dominante). <br>
